@@ -5,5 +5,3 @@
 Thank you for visiting! Stay tuned for more updates and projects.
 
 ---
-
-😊
